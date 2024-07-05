@@ -33,4 +33,4 @@ entrano ed escono informazioni sottoforma di preghiere, miracoli, poltergeist, s
 vi ritroviamo i nostri cari, e da lì possiamo anche comunicare con la natura propriamente detta. Questa sovranatura sembra più
 accessibile di un buco nero, ma un buco nero risiede nella natura. Non sarebbe più semplice considerarla una parte della
 natura e basta? Perchè c'e una sovranatura invece di un sovraniente"? Questa fu l'ultima tessera del domino a cadere.
-Cadde quasi subito: per allora disponevo di un rasoio ben affilato. Marca Ockham, ovviamente.
+Cadde quasi subito: per allora disponevo già di un rasoio ben affilato. Marca Ockham, ovviamente.
